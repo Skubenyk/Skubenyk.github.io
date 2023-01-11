@@ -1,1 +1,0 @@
-# Skubenyk.github.io
